@@ -1,4 +1,4 @@
-## Some of my recent public work
+## Recent public work
 
 ### COVIDSafe
 
